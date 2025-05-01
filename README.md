@@ -1,2 +1,1 @@
-# work
-专业实践
+![](https://raw.githubusercontent.com/Xpccccc/PicGo/main/data202505010906112.png)
